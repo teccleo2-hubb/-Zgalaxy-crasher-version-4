@@ -1,5 +1,5 @@
-# -Zgalaxy-crasher-version-4
-⚠️ very harmful 😭😭😭weak dudes must go suffer 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=25&pause=1000&color=6100F7&background=0041FF00&width=435&lines=Zgalaxy-crasher-version-4+%E2%9A%A0%EF%B8%8F+" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&pause=1000&color=B5FF75&background=0041FF00&width=435&lines=very+harmful+%F0%9F%98%AD%F0%9F%98%AD%F0%9F%98%ADweak+dudes+must+go+suffer+" alt="Typing SVG" /></a>
 [23/06, 19:44] : 🐉⭑̤⟅̊༑ ▾⿻ ▾Σ𝐗𝚯 ⧉ 𝐙𝐀𝚸▾̋̋͢ ⿻ ▾ ༑̴⟆̊⭑〽️
 TrashXeMessage🩸
 𝑿͋͢͜𝑹𝒂̶͠𝒛͢͡𝒂̶𝑴̟𝒐̶͎̟̽𝒅͢𝒔̚𝒔̚𝑶̽𝒇𝒇𝒊𝒄𝒊𝒂𝒍🇦🇱
